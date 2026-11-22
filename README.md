@@ -13,6 +13,6 @@
 <details>
 <summary>永远不会忘记你😭😭😭</summary>
 
-[点击查看](http://gsu158.github.io/gsu158_awa)
+[点击查看](http://gsu158.github.io/nggyu)
 
 </details> 
